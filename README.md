@@ -1,0 +1,2 @@
+"# formulacion-inorganica" 
+"# formulacion-inorganica" 
